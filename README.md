@@ -6,7 +6,7 @@
 
 <div align="center">
 
-[ata 𑣲⋆｡˚ ](https://literallyscout.atabook.org) ${\textsf{\color{#261eff} + }}$     [lurk me 𑣲⋆｡˚ ](https://www.tumblr.com/literallyscout?source=share)
+[ata 𑣲⋆｡˚ ](https://literallyscout.atabook.org) ${\textsf{\color{#261eff} + }}$     [lurk me 𑣲⋆｡˚ ](https://scout.lurk.me)
 
 <div align="center">
 
